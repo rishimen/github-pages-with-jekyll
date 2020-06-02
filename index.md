@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Rishi Mendiratta
 
-I'm glad you are here. I plan to talk about ...
+Name: Rishi Mendiratta
